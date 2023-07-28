@@ -1,2 +1,1 @@
-# bintangantarise
-solo account
+# bintangantaris
